@@ -1,1 +1,0 @@
-# goodideasuvichar.github.io
